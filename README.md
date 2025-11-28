@@ -1,1 +1,1 @@
-this is my dsa practice  during watching "Apna college" tutorail
+this is my dsa practice  during watching "Apna college" tutorial
